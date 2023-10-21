@@ -1,6 +1,4 @@
-# Projetos (em Construção)
-Este portifólio está em construção e mais informações serão adicionadas em breve.
-
+# Projetos 
 ---
 
 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
